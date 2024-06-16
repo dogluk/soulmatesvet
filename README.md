@@ -3,7 +3,7 @@ Soulmates Veterinary Hospital is dedicated to bringing top-notch companion anima
 
 Started by a passionate doctor couple, Drs Shashikant and Vijayalakshmi Kulgod, who share a deep love for animals, our mission is to provide quality veterinary services where they are most needed. Our first hospital, Ruby Veterinary Hospital, is set to open in Belgaum, Karnataka, by the end of 2024. Equipped with state-of-the-art facilities and a team of skilled veterinarians, Soulmates Veterinary Hospital is committed to enhancing the health and happiness of pets, ensuring that every animal receives the care they deserve.
 
-Join Our Mission
+Join Our Mission -
 
 We are looking for dedicated vets, assistants, and other staff to join our team at Ruby Veterinary Hospital in Belgaum. If you are passionate about animal care and want to make a difference, we would love to hear from you.
 
